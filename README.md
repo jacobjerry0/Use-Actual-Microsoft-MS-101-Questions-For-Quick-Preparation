@@ -2,7 +2,7 @@
 
 <p style="text-align: justify;">Today We see a lot of changes in the IT sector. Keeping yourself updated is very important in the Modern IT industry. Participating in professional certification tests like the Microsoft 365 Enterprise Administrator Expert exam will help you to enhance your career in the IT sector. People around the globe can get the best-paying jobs after achieving success in the Microsoft 365 Enterprise Administrator Expert exam. P2PExams will assist&nbsp;you in passing the Microsoft 365 MS-101 exam with brilliant results.&nbsp;Yes, P2PExams give you surety about your success in the Microsoft 365 Mobility and Security&nbsp;exam if you use the Latest&nbsp; <a href="https://www.p2pexams.com/microsoft/pdf/ms-101">MS-101 Questions</a> to prepare for the exam.&nbsp;</p>
 
-<p style="text-align: center;"><img alt="MS-101 dumps " src="https://i.ibb.co/hD4gsPW/p2p1.jpg" style="width: 700px; height: 354px;" /></p>
+<p style="text-align: center;"><a href="https://www.p2pexams.com/products/ms-101"><img alt="MS-101 dumps " src="https://i.ibb.co/hD4gsPW/p2p1.jpg" style="width: 700px; height: 354px;" /></a></p>
 
 <h2 style="text-align: justify;"><br />
 <strong>P2PExams Latest&nbsp;Microsoft MS-101 Exam Dumps - Three Best Formats</strong></h2>
